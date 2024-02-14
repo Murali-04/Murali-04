@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Murali-04
+- 👋 Hi, I’m Murali Krishna 
 - 👀 I’m interested in Aircraft Control  
 - 🌱 I’m an Aerospace graduate
 - 📫 How to reach me ...mk13102001@gmail.com
